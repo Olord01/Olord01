@@ -2,6 +2,7 @@
 
 - I'm based in Australia
 - Studying in high school
+- I love dogs 🐶
 - Not much coding experience but I like computers and fun stuff 😝
 
 ---
