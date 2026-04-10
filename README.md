@@ -4,6 +4,7 @@
 - Studying in high school
 - I love dogs 🐶
 - Not much coding experience but I like computers and fun stuff 😝
+- You can contact via [email](olord-01@outlook.com)
 
 ---
 
