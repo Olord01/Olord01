@@ -1,10 +1,10 @@
 ## Hi there! 👋 I'm Olord
 
-- I'm based in Australia
-- Studying in high school
+- I'm based in Australia 🇦🇺
+- Studying in high school 🎓
 - I love dogs 🐶
 - Not much coding experience but I like computers and fun stuff 😝
-- You can contact via [email](olord-01@outlook.com)
+- You can contact via [email](olord-01@outlook.com) 📧
 
 ---
 
